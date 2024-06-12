@@ -8,8 +8,9 @@
 
 ### Você pode entrar em contato comigo
 
+00001080381053sp@al.educacao.sp.gov 
 
-
+@gabibarbosa26
 <!---
 gabibarbosa26/gabibarbosa26 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
