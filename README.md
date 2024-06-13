@@ -1,6 +1,6 @@
 ### Boas vindas ao meu perfil 💞️
 
-- 👋 Meu nome é Gabrielly Barbosa
+- 👋 Meu nome é **Gabrielly Barbosa**
 
   ![](https://media1.tenor.com/m/PKKCAakpBZIAAAAC/neyney-neymar.gif)
 
